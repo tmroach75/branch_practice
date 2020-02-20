@@ -1,5 +1,7 @@
 # Favorite Things
 
+Sup lad, you're the coconut to my Samoa
+
 These are a few of my favorite things:
 
 - Raindrops on roses
