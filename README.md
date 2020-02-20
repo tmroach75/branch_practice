@@ -1,6 +1,6 @@
 # Favorite Things
 
-Sup lad, you're the coconut to my Samoa
+Sup lad, you're the coconut to my Samoa, psyche im a thin mint kinda guy :P
 
 These are a few of my favorite things:
 
